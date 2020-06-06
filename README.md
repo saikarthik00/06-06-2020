@@ -15,6 +15,7 @@
   Known Languages : Telugu, Hindi, English.
   
   Interests   : Reading, Watching movies, Playing cricket
+  
   ## Adress for Communication 
    Door no : 5/109
    
